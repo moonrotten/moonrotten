@@ -6,13 +6,13 @@
 
 > Art by autonomyss on tumblr
 
-$\color{#e64132}{\textsf{ My name is May/Majus, Hotguy, Cleo or generally what pony I'm using at the moment! }}$
+$\color{#e64132}{\textsf{ My name is May/Mankira, Hotguy, Cleo or generally what pony I'm using at the moment! }}$
 
 $\color{#e64132}{\textsf{ I'm a 16yo art student! (psst if ya wanna see my art check out my tumblr!!)}}$ 
 
 
 $\color{#e64132}{\textsf{ I'm mainly interested in mcyt but my sub hyperfixation changes a lot!! }}$ 
-$\color{#4a1e2b}{\textsf{ Currently it's Atla!! I'm writing an au out of it aswell ooo }}$ 
+$\color{#4a1e2b}{\textsf{ Currently it's gachiakuta and deltarune!!}}$ 
 
 $\color{#e64132}{\textsf{ No. 1 moonrot shipper btw gng }}$ 
 
@@ -21,7 +21,7 @@ $\color{#e64132}{\textsf{ No. 1 moonrot shipper btw gng }}$
 $\color{#e64132}{\textsf{ On pony town always W2I and C+H so feel free to come up to me whenever I'm online! }}$ 
 $\color{#e64132}{\textsf{ If you need help with ponies or color theory I'm your guy!! }}$ 
 
-$\color{#e64132}{\textsf{ Also usually seen sitting with @piglinmynose and @Alexia1shere 
+$\color{#e64132}{\textsf{ Also usually seen sitting with @piglinmynose, @Alexia1shere and @maharshie
  }}$ 
 
 
