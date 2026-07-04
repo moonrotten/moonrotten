@@ -5,7 +5,7 @@
 <p align="center"><img src="https://ajajajuh.carrd.co/assets/images/image02.png?v=969a8a87">
 
 <p align="center">$\color{#5c0e21}{\textsf{ art by autonomyss on tumblr }}$
-> 
+
 
 <p align="center">$\color{#e64132}{\textsf{ May/Mankira }}$
 
