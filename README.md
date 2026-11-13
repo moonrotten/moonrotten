@@ -22,7 +22,7 @@
 <p align="center">$\color{#e64132}{\textsf{ usually offtab so whisp to get my attention!! }}$ 
 <p align="center">$\color{#e64132}{\textsf{ always C+H and w2i! I LOVELOVELOVE making new friends!! }}$ 
 <p align="center">$\color{#691414}{\textsf{ If you need help with ponies or color theory I'm your guy!! }}$ 
-<p align="center">$\color{#e64132}{\textsf{ Top kins: Peter Parker (spiderman), Jabber Wonger (gachiakuta), Azure (Forsaken)}}$ 
+<p align="center">$\color{#e64132}{\textsf{ Top kins: Tony Stark (Marvel), Jabber Wonger (gachiakuta), Azure (Forsaken)}}$ 
 
 
 <p align="center"><img src="https://64.media.tumblr.com/2dcf095d2ddf13cedd5d6e855751b961/e0e43cf39fe2fea0-24/s2048x3072/b8349a582b3ff868f95b2f94c0c998822710d437.pnj">
